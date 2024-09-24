@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @Sergio-Veliz
 - 👀 I’m interested in Plasma and Condensed Matter Physics
 - 📫 How to reach me: velizserge334@gmail.com
-- 😄 Pronouns: He/Him/His
